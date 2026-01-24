@@ -1,3 +1,10 @@
+<img width="460" height="460" src="https://file.garden/ZvcIwE3DAlyVYn09/Untitled98_20260124152955.png"> 
+<p align="center">
+‎ ‎           me @scottpiIgrim @boyskissing @eddisode and @fIowerboy
+  (yes i cppied and pasted this)
+ <p align="center">
+🩵💛❤️🧡💜
+
 
 @fuziyamas sybau
 
