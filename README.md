@@ -14,8 +14,9 @@
 
 <div align="center">
 
-![LOLL](https://file.garden/aAvWBP1GM0PQF0GB/wow%20i%20love%20byler))
+![LOLL](https://file.garden/aAvWBP1GM0PQF0GB/wow%20btker%20s%20GREAT!)
 </div>
 
 [@perfectiionism](https://github.com/perfectiionism) hii rate my byler custom
-oh whats taht? U lkike it~? ok ok ill add more~
+oh whats taht? U lkike it~? ok ok ill add more~ 
+ok rate my byler custom thing now its great right
