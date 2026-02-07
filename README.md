@@ -3,6 +3,9 @@
  ![](https://komarev.com/ghpvc/?username=vysters&label=IHATEBYLER)
 
 <p align="center">
+
+![](https://file.garden/aAvWBP1GM0PQF0GB/andbumbleee)
+@puplove me and @fiowerboy and bumblebee
  
 <img width="300" height="300" src="https://i.ibb.co/4RxM240d/Untitled136-20260202101143.png">
 
