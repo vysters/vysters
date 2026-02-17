@@ -3,27 +3,30 @@
  ![](https://komarev.com/ghpvc/?username=vysters&label=IHATEBYLER)
 
  [rentry](https://rentry.org/annabelle) [callout](https://rentry.org/calloutlist) [pronouns](https://en.pronouns.page/@IHATEBYLER) [guns.lol](https://guns.lol/hollywheeler) [atabook](https://vysters.atabook.org/)
-)
+
+<div align='center'>
+ 
+![](https://file.garden/aAvWBP1GM0PQF0GB/read)
+
+[@perfectiionism](https://github.com/perfectiionism) loves mileven
+
+i love u piggy gc 💜
+
+[@fiowerboy](https://github.com/fiowerboy) , [@puplove](https://github.com/puplove) , [@eddisode](https://github.com/eddisode) , [@boykissing](https://github.com/boykissing) ,[@scottpiIgrim](https://github.com/scottpiIgrim) , [@itadei](https://github.com/itadei) , [@frankensteln](https://github.com/frankensteln) and [@cursedtides](https://github.com/cursedtides)
+
+
+
+
 
 
 
 
  
-<p align="center">
- 
-<img width="200" height="200" src="https://i.ibb.co/4RxM240d/Untitled136-20260202101143.png">
-<p align="center">
-me and piggy gc
 
- 
-<p align="center"> <img width="200" height="200" src ="https://file.garden/aAvWBP1GM0PQF0GB/imdead">
-<p align="center">
-@puplove me and fiowerboy (no bumblebee this time guys)
+
 
 <div align="center">
 
- <img width="200" height="200" src ="https://file.garden/aAvWBP1GM0PQF0GB/GOOD">
-</div>
 
 
 
@@ -33,8 +36,3 @@ me and piggy gc
 
 
 
-
-[@perfectiionism](https://github.com/perfectiionism) hii rate my byler custom
-oh whats taht? U lkike it~? ok ok ill add more~ 
-ok rate my byler custom thing now its great right boy u so jealous bruh
-RATEE ITS SO GOOD
