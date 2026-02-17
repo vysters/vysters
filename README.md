@@ -12,7 +12,7 @@
 
 i love u piggy gc 💜
 
-[@fiowerboy](https://github.com/fiowerboy) , [@puplove](https://github.com/puplove) , [@eddisode](https://github.com/eddisode) , [@boykissing](https://github.com/boykissing) ,[@scottpiIgrim](https://github.com/scottpiIgrim) , [@itadei](https://github.com/itadei) , [@frankensteln](https://github.com/frankensteln) and [@cursedtides](https://github.com/cursedtides)
+[@fiowerboy](https://github.com/fiowerboy) , [@puplove](https://github.com/puplove) , [@eddisode](https://github.com/eddisode) , [@girlskissing](https://github.com/girlskissing), [@boyskissing](https://github.com/boyskissing) ,[@scottpiIgrim](https://github.com/scottpiIgrim) , [@itadei](https://github.com/itadei) , [@frankensteln](https://github.com/frankensteln) and [@cursedtides](https://github.com/cursedtides)
 
 
 
