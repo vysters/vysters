@@ -14,7 +14,6 @@ i love u piggy gc 💜
 
 [@fiowerboy](https://github.com/fiowerboy) , [@puplove](https://github.com/puplove) , [@eddisode](https://github.com/eddisode) , [@girlskissing](https://github.com/girlskissing), [@boyskissing](https://github.com/boyskissing) ,[@scottpiIgrim](https://github.com/scottpiIgrim) , [@itadei](https://github.com/itadei) , [@frankensteln](https://github.com/frankensteln) and [@cursedtides](https://github.com/cursedtides)
 
-![](https://media1.tenor.com/m/hU-5rdq6rDkAAAAd/frustrated-dl-creelbys.gif) im so sorry guys.
 
 
 
