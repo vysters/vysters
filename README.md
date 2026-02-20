@@ -15,10 +15,14 @@ i love u piggy gc 💜
 [@fiowerboy](https://github.com/fiowerboy) , [@puplove](https://github.com/puplove) , [@eddisode](https://github.com/eddisode) , [@girlskissing](https://github.com/girlskissing), [@boyskissing](https://github.com/boyskissing) ,[@scottpiIgrim](https://github.com/scottpiIgrim) , [@itadei](https://github.com/itadei) , [@frankensteln](https://github.com/frankensteln) and [@cursedtides](https://github.com/cursedtides)
 
 
+
 09:33 PM[1🌾✅] :📸: ┆™willl sᴘᴇᴀᴋɪɴɢ ┆⌞ ʜᴇ ɴᴇʀᴠᴏᴜꜱʟʏ ꜱᴘᴏᴋᴇ, "ʜɪ ᴇʟᴇᴠᴇɴ. ɪᴛ'ꜱ ꜱᴄᴀʀʏ ʜᴇʀᴇ"
+
 09:34 PM[1🌾✅] whispers: ˖ ᴡɪʟʟ . ⊹: "ʜᴀᴠᴇ ʏᴏᴜ ꜱᴇᴇɴ ᴍɪᴋᴇ? ɪ ᴍɪꜱꜱ ʜɪᴍ"
+
 09:37 PM[1🌾✅] whispers: .ᐟ ʎoq ᗡƎᴚ∀ƆS.╰ ⋮ ⋮ .ᐟ "ᴡᴇ ᴍᴜꜱᴛ ꜰɪɴᴅ ʜɪᴍ, ᴇʟᴇᴠᴇɴ."
 
+ven btw ^ thought i had to addres this. [ven](https://github.com/venzqs)
 
 
 
