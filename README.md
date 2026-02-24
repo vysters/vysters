@@ -25,6 +25,9 @@ i love u piggy gc 💜
 ven btw ^ thought i had to addres this. [ven](https://github.com/venzqs)
 
 
+08:49 PMTo [witches rave] Um. Hi. I was just wondering.. Whyd you copy my style..?
+08:51 PM[witches rave] whispers: oh um hi- im sorry, im notorious for colorpickinh and it was jus so beuatifu;. im soreey.
+
 
 
 
