@@ -14,22 +14,6 @@ i love u pigpen party 💜
 
 
 
-
-09:33 PM[1🌾✅] :📸: ┆™willl sᴘᴇᴀᴋɪɴɢ ┆⌞ ʜᴇ ɴᴇʀᴠᴏᴜꜱʟʏ ꜱᴘᴏᴋᴇ, "ʜɪ ᴇʟᴇᴠᴇɴ. ɪᴛ'ꜱ ꜱᴄᴀʀʏ ʜᴇʀᴇ"
-
-09:34 PM[1🌾✅] whispers: ˖ ᴡɪʟʟ . ⊹: "ʜᴀᴠᴇ ʏᴏᴜ ꜱᴇᴇɴ ᴍɪᴋᴇ? ɪ ᴍɪꜱꜱ ʜɪᴍ"
-
-09:37 PM[1🌾✅] whispers: .ᐟ ʎoq ᗡƎᴚ∀ƆS.╰ ⋮ ⋮ .ᐟ "ᴡᴇ ᴍᴜꜱᴛ ꜰɪɴᴅ ʜɪᴍ, ᴇʟᴇᴠᴇɴ."
-
-ven btw ^ thought i had to addres this. [ven](https://github.com/venzqs)
-
-
-08:49 PMTo [witches rave] Um. Hi. I was just wondering.. Whyd you copy my style..?
-
-
-08:51 PM[witches rave] whispers: oh um hi- im sorry, im notorious for colorpickinh and it was jus so beuatifu;. im soreey.
-
-
 <div align="center">
 
 
