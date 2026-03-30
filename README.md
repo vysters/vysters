@@ -14,7 +14,8 @@
 
 <div align='center'>
  
- <img width="300" height="500" src="https://file.garden/aAvWBP1GM0PQF0GB/jsjsks.png">
+ <img width="300" height="500" src="https://file.garden/aAvWBP1GM0PQF0GB/HCyuks1aUAIb_rW%3Fformat%3Djpg%26amp%3Bname%3Dlarge">
+ just a bunch of bullshit imlaughing
 
 
 
