@@ -14,7 +14,7 @@
 </p>
 </p>
 
- [m/w](https://rentry.org/byIeer) [rentry](https://rentry.org/annabelle) [callout](https://rentry.org/calloutlist) [pronouns](https://en.pronouns.page/@IHATEBYLER) [guns.lol](https://guns.lol/hollywheeler) [atabook](https://vysters.atabook.org/) [guns.lol 2](https://guns.lol/onewheatmark) [yumes](https://rentry.org/buzzy-bees) [poly ♡(„• ֊ •„)](https://rentry.org/-poly)
+ [rentry](https://rentry.org/zc)  [pronouns](https://en.pronouns.page/@IHATEBYLER) [guns.lol](https://guns.lol/hollywheeler) [atabook](https://vysters.atabook.org/)\
 
 <div align='center'>
  
